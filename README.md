@@ -1,2 +1,2 @@
 # Secrets
-You can submit your secrets herer, anonymously!
+You can share your secrets here, anonymously!
