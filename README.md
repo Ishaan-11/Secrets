@@ -1,2 +1,2 @@
 # Secrets
-You can share your secrets here, anonymously!
+You can share your secrets here, anonymously!🦹🏻‍♂️
